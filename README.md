@@ -1,1 +1,1 @@
-# Negocia-o
+# Negociação
